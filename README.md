@@ -1,0 +1,2 @@
+# greetingok
+belajar   bahasa inggris
